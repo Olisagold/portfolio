@@ -3,5 +3,4 @@
 hello dozie edited this
 
 confirmation
-
-hey winner fixed the bug
+I am dozie and i merged me and winners code together

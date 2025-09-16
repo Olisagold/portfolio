@@ -2,5 +2,5 @@
 
 
 confirmation
-I am dozie and i merged me and winners code togethe
+I am dozie and i merged me and winners code together
 

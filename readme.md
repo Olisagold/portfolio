@@ -2,5 +2,5 @@
 
 
 confirmation
-I am dozie and i merged me and winners code togethe.mdehegbjqebejkgham,gejddsgvYJ sg
+I am dozie and i merged me and winners code togethet
 
